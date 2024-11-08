@@ -1,4 +1,4 @@
-register here for [pocketfi](t.me/pocketfi_bot/Mining?startapp=5760224255)
+register here for [pocketfi](https://t.me/pocketfi_bot/Mining?startapp=5760224255)
 
 
 ## Functionality
